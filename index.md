@@ -1,4 +1,4 @@
-# WallCanic Walls Privacy 
+# WallCanic Walls Privacy Policy
 
 **Privacy Policy**
 
