@@ -2,7 +2,7 @@
 
 **Privacy Policy**
 
-Paradox Studios built WallCanic Walls app. This SERVICE is provided by Paradox Studios at no cost and is intended for use as is.
+Paradox Studios built WallCanic Walls app. This SERVICE is provided by Paradox Studios.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
