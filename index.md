@@ -1,4 +1,3 @@
-# WallCanic Walls
 
 
 **Privacy Policy**
